@@ -7,5 +7,5 @@ Investors are now prone to buying up property in warm-beachside havens such as M
 
 At the start of 2018, trending cryptocurrencies include Bitcoin (valued at $13,083.10 USD), Ethereum ($1,165.32), and Ripple ($1.60) and are all poised to continue growing. 
 
-Read Here: 
+Read Here: https://beyondtheaverage.wordpress.com/2018/01/30/the-rise-of-cryptocurrency/
 
